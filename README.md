@@ -1,1 +1,1 @@
-# stats507_coursework_Beining-Jin
+# stats507_coursework_Beining Jin
